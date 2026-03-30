@@ -22,8 +22,8 @@
 ---
 
 ### 🔗 Connect with Me
-- WhatsApp: (your number or link)
-- Email: your@email.com
+- WhatsApp: (+263786641436)
+- Email: alexiomhungu9@gmail.com
 
 ---
 
